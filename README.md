@@ -2,4 +2,4 @@
 
 More about me
 
-💻 : [linkedin.com/in/cong-nguyen-thanh-1001](www.linkedin.com/in/cong-nguyen-thanh-1001)
+💻 : [linkedin.com/in/cong-nguyen-thanh-1001](https://www.linkedin.com/in/cong-nguyen-thanh-1001)
